@@ -12,4 +12,4 @@
   - be professional in any sport\
 
 
-*** A little something about myself***
+*** A little something about myself ***
